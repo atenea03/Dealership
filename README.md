@@ -6,7 +6,7 @@
     
 **IMAGES:**
 
-![1](https://i.imgur.com/Kc2zXlx.png)
+![1](https://i.imgur.com/Tmh3sok.jpeg)
 ![2](https://i.imgur.com/QG9KQvw.png)
 ![3](https://i.imgur.com/YQSJuX9.png)
 ![4](https://i.imgur.com/wtIrjlb.png)
